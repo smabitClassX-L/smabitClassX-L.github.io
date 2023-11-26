@@ -1,1 +1,0 @@
-# smabitClassX-L.github.io
